@@ -1,5 +1,5 @@
   <h1>Wolt Rabattcode 2025 – Spare 28€ mit "7QK5E7W"</h1>
-  <img src="https://miro.medium.com/v2/resize:fit:1400/format:webp/1*2b366OhzDfFDBmDkJxw1xQ.png" alt="Wolt Rabatt-Code">
+<img src="https://miro.medium.com/v2/resize:fit:1400/format:webp/1*ZvF3te6Eqp6sa44ag97PXA.png" alt="Wolt Rabatt-Code">
     <h2>Key Points</h2>
         <p>Die Verwendung des Wolt-Rabattcodes "7QK5E7W" kann einen Rabatt von 28 Euro auf deine erste Bestellung bieten.</p>
     <h2>Einführung</h2>
